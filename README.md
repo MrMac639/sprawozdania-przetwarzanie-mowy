@@ -1,0 +1,1 @@
+# sprawozdania-przetwarzanie-mowy
